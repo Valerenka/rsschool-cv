@@ -1,4 +1,5 @@
 # Valeryia Yasiuk
+![AB437B69-AA19-4C85-BC77-8FDAC93AE57_1_105_c](https://github.com/Valerenka/rsschool-cv/assets/137696033/e3f17854-69b0-432c-93de-cd54a32b1a26)
 
 I'm a HR manager who is currently training to be a developer.
 
