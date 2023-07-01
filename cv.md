@@ -10,8 +10,8 @@ I like to travel, learn the mentality and culture of different peoples, I hope t
 
 My soft and hard skills: friendly (I know how to find an approach to people, win over); find solutions to extraordinary tasks; open to learning new ones; passionate about my work; reliable, I bring things to the end; responsible, fast learner.
 
-My contacts:
+Contact me:
 
-[Telegram](https://t.me/valerenka)
-
-[Linkdin](https://www.linkedin.com/in/valeriyayasyuk/)
+- [Telegram](https://t.me/valerenka)
+- [Linkdin](https://www.linkedin.com/in/valeriyayasyuk/)
+- [Instagram](https://www.instagram.com/valerenka/)
